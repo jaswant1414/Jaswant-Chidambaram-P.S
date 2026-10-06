@@ -91,3 +91,4 @@ I am continuously working on improving my programming skills, technical knowledg
 ## Connect With Me
 
 I am always interested in learning from mentors, collaborating with fellow students, exploring technology, and connecting with people who share an interest in AI and programming.
+Reach out via [LinkedIn](https://linkedin.com/in/jaswant1414) or drop a direct inquiry at [jaswantps4118@gmail.com](mailto:jaswantps4118@gmail.com)
